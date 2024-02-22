@@ -4,5 +4,5 @@
 ✦ disciplina: Pensamento Computacional
 ✦ turma: 1º integral
 ✦ Cidade: Santa Izabel do Oeste
-✦ Idade: 15 anos 
+✦ Idade: 16 anos 
 (❀ˆᴗˆ)♥︎ ˚｡
